@@ -16,7 +16,7 @@
 
 - 📫Tecnica en Informatica
 
-- ⚡ Ambicion, responsabilidad, creatividad  y aporte de ideas encontraras aqi
+- ⚡ Ambicion, responsabilidad, creatividad  y aporte de ideas encontraras aqui
 
 <br>
 
